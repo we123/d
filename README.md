@@ -1,6 +1,7 @@
-<p>2017/7/29
+<p>2017/7/31
 <p>封锁严厉！网址能访问的，请记的收藏。
 <p>建议用谷歌或火狐官方浏览器访问。
+<p>◎   <strong>"tv223.ga"</strong>请复制后，用谷歌的Chrome浏览器访问。
 <p>◎   • 视 频： 
 <a href="http://a.pcanywhere.net/tv/index.html" target="_blank">网址一</a> 　 
 <a href="http://no.cooss.win/9018.html" target="_blank">网址二</a> 　 
